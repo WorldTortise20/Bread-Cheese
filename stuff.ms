@@ -1,0 +1,1 @@
+Bread, cheese (any will work but pepperjack is best), sauce, garlic salt, and other dressings
